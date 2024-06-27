@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NatheeshanSithravel
-- 👀 I’m interested in Wattala Sri Lanka
+- 👀 I’m in Wattala Sri Lanka
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
