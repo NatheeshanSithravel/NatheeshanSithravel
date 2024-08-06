@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a Computer Science Student<br>I am From Wattala, Sri Lanka
+Computer Science Student<br>Tech Enthusiast 
 
 
 ## 🌐 Socials:
